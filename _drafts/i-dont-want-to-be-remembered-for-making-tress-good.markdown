@@ -24,7 +24,7 @@ Many might say you can reduce any work life achievements to meaninglessness. Let
 - Twitter: you create tiny little blogs where 99.9999% of them have no value
 - Amazon: you offer at marketplace with terrible knock-offs at the expense of quality goods
 
-There has to be a line somewhere. For instance, it'd be difficult to say "You're just a doctor who helps people moan" because it's a clear necessity. The size of an operation may also play a role. For instance, if you ran Twitter on your own would you still feel as though your output is meaningless? It's difficult to say because the output would likely be different: would Twitter with 1,000 staff be different with an enginer of 1? Probably. 
+There has to be a line somewhere. For instance, it'd be difficult to say "You're just a doctor who helps people moan" because it's a clear necessity. The size of an operation may also play a role. For instance, if you ran Twitter on your own would you still feel as though your output is meaningless? It's difficult to say because the output would likely be different: would Twitter with 1,000 staff be different with an engineer of 1? Probably. 
 
 It's not about being a cog, it's about the output. I would be troubled if my legacy was Twitter because it's a menace to society. 
 
