@@ -1,3 +1,8 @@
+---
+layout: post
+title: "Writing A Million Words In The Open"
+---
+
 # Writing A Million Words In The Open
 
 Goal: Describe what it is, why I'm doing it, and how I'll track it.

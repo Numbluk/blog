@@ -1,0 +1,1 @@
+1. Notes do not count. Give example of this page having many notes gathered and formed into a story.
