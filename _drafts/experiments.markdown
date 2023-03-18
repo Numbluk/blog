@@ -3,4 +3,5 @@
 2. Don't write the title until the end
 	1. 612 words
 2. Write a goal:
-	1. 
+	
+

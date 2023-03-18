@@ -1,0 +1,1 @@
+Goal: Describe the feeling of the learning curve. Make it tangible so that people can grasp what it feels like. Explain it in more than a chart. Put words to an arbitrary graph.
