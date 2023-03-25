@@ -1,0 +1,2 @@
+- Topic: The man in the tower is a figure who is guarded, yet outward facing who has independent influence on the world.
+- 
