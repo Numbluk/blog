@@ -1,2 +1,2 @@
-- Topic: The man in the tower is a figure who is guarded, yet outward facing who has independent influence on the world.
+- Introduction: I have often dreamt of an aged man who lives in alone in a ruined tower.
 - 

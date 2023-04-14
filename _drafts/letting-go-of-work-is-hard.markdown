@@ -1,0 +1,1 @@
+Letting go of work is hard. I'm always curious how people do it. I'm hypocritical in that I ask people to turn off their work phones, ignore email, and enjoy life while on vacation, but I can't manage the same. 
