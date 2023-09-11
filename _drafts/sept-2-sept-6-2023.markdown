@@ -1,0 +1,7 @@
+# September 2nd - September 6th: Sailing
+
+Hayden was tall, stocky, and Northern--not what I expected for someone coming from Poole. He left at 06:30 to get to Peaberries by 09:30. After grabbing coffee, we walked to Rice and Cole to go over the passage to Ramsgate. Conversation was easy, and his experience on the water was non-traditional, "I had two choices", he said, "join the Sea Cadets or become a criminal". For his sake, he chose the former and had been a Yachtmaster for many years now which was rather impressive considering he was only twenty-four.
+
+Mostly sunny and British-warm, the temperature couldn't have been better. Unfortunately, we had to fight both the Easterly wind and the tide all the way out of the Crouch. The trip would be around 50 nautical miles with us arriving in Ramsgate in the dark.
+
+I learned many lessons on this trip, but the first was just how isolated the River Crouch is. Just South of the River Blackwater and just north of the River Thames, the Crouch helps to form an enclave of estuaries which are tricky to navigate due to their ever-changing sandbanks and mudflats. Always have up-to-date charts here. Always. Or you might end up slamming your keel over and over on a mudflat 10 miles out from land while you wait for the RNLI to come rescue you from the freezing cold water. 
